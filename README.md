@@ -11,6 +11,5 @@ I'm Vivek, a passionate developer from Tamilnadu. I love working on innovative p
 - 📫 To reach me & Collaborate Email: vivek131222000@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love hiking,Nature🌱and photography.
-- [john.doe@example.com](mailto:john.doe@example.com)
 
 
